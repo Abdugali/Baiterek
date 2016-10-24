@@ -1,0 +1,2 @@
+# Baiterek
+all Kazakhstani pictures
